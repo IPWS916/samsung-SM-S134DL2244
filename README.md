@@ -1,0 +1,1 @@
+# samsung-SM-S134DL2244
